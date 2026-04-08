@@ -1,1 +1,0 @@
-# Climate-PA-Forest-Loss
